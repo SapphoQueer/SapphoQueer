@@ -1,3 +1,3 @@
 
-## ✨ Fun Fact or Personal Motto
+## ✨ Fun Fact
 - my name jeff
